@@ -10,3 +10,5 @@ Glamrock Freddy/Glamrock Freddy is a ✨ special ✨ repository because its `Gla
 You can click the Glamrock Freddy to take a look at your Glamrock Freddy.
 
 (Glamrock Freddy)
+
+[If your trying to employ me check out my website here](https://winstead.valtek.uk)
